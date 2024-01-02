@@ -1,0 +1,1 @@
+Creality Ender 3 Fan Cover Harley Logo by Pilot260 on Thingiverse: https://www.thingiverse.com/thing:3989006

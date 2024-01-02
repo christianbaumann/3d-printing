@@ -1,0 +1,1 @@
+Ender3 Filament Guide (Yep another one...) by FragrantAbyss on Thingiverse: https://www.thingiverse.com/thing:3434928
