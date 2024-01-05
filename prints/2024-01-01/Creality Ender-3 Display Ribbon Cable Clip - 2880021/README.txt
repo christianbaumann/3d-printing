@@ -1,1 +1,0 @@
-Creality Ender-3 Display Ribbon Cable Clip by gn-jr on Thingiverse: https://www.thingiverse.com/thing:2880021

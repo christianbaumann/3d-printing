@@ -1,1 +1,0 @@
-Bobbin Holder by TarsVH on Thingiverse: https://www.thingiverse.com/thing:38357

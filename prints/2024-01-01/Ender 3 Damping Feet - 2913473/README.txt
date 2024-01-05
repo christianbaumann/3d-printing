@@ -1,1 +1,0 @@
-Ender 3 Damping Feet by redmaxver on Thingiverse: https://www.thingiverse.com/thing:2913473
